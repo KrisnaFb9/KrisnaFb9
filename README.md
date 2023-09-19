@@ -1,12 +1,12 @@
 # 🚀 Portofolio Gabut Febb 🤟
 
-Hai, dunia! Selamat datang di gudang gabut saya! Saya [hamba allah ], seseorang yabg gabut dengan  suka bereksperimen, Portofolio ini adalah tempat saya melepas imajinasi kegabutan saya  dan berbagi hasilnya dengan Anda.
+Hai, dunia! Selamat datang di gudang gabut saya! Saya [hamba allah ], seseorang yang gabut dengan suka bereksperimen, Portofolio ini adalah tempat saya melepas imajinasi kegabutan saya  dan berbagi hasilnya dengan Anda.
 
 ## Tentang Saya
 
 Saya adalah seorang [Mahasiswa dengan Hobi rebahan ], dengan seutas sisi kreatif dan rasa gabut yang selalu ingin mencoba hal-hal baru.
 
-Beberapa proyek yang mungkin Anda temui:
+Beberapa proyek yang mungkin Anda temui adalah hasil dari kegabutan saya 
 
 ### 🎨 Eksperimen Kreatif
 
@@ -18,4 +18,4 @@ Jika Anda gabut dan tidak tau mau ngapain bisa menghubungi saya . jangan ragu un
 
 ## Terima Kasih
 
-Terima kasih sudah mampir ke gudang gabut saya. Semoga Anda menemukan sesuatu yang menginspirasi atau sekadar membuat Anda tersenyum. Mari bersenang-senang dan bersama-sama jelajahi dunia rasa gabut yang luas ini! 🎉
+Terima kasih sudah mampir ke gudang gabut saya. Semoga Anda menemukan sesuatu yang menginspirasi atau sekadar membuat Anda tersenyum. Mari bersenang-senang dan bersama-sama jelajahi dunia dengan rasa gabut yang luas ini! 🎉
